@@ -1,3 +1,3 @@
 - 👋 Merhaba, Ben @zeworia
-- 👀 Şunlarla İlgileniyorum; HTML, Java
+- 👀 Şunlarla İlgileniyorum; HTML, Java, JavaScript, 
 - 📫 Bana Discord Üzerinden Ulaşabilirsin: ᴢᴇᴡᴏ#7419
