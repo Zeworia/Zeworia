@@ -1,2 +1,3 @@
-ᴍᴇʀʜᴀʙᴀʟ ʙᴇɴ ᴢᴇᴡᴏʀɪᴀ ᴅɪsᴄᴏʀᴅ ᴅᴇᴠᴇʟᴏᴘᴇʀ,ᴀɴᴅʀᴏɪᴅ ᴋᴏᴅʟᴀᴍᴀ ᴠᴇ ᴡᴇʙ ᴛᴀsᴀʀıᴍᴄısıʏıᴍ
-
+- 👋 Merhaba, Ben @zeworia
+- 👀 Şunlarla İlgileniyorum; HTML, Java
+- 📫 Bana Discord Üzerinden Ulaşabilirsin: ᴢᴇᴡᴏ#7419
